@@ -35,5 +35,5 @@ I am a Computer Science & Engineering student (Class of 2027) with a deep focus 
 
 ### 📫 Let's Connect
 
-* **Email:** Abdulrahmanhammd@gmail.com
-* **LinkedIn:** [abdulrahman-m-a-ebrahim](https://www.linkedin.com/in/abdulrahman-m-a-ebrahim/)
+* **Email:** boodyaly18@gmail.com
+* **LinkedIn:** [Abdulrahman Ali Ebrahim](https://www.linkedin.com/in/abdulrahman-ali-ebrahim)
